@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **christin.kjoseph@gmail.com**
 
-- ⚡ Fun fact **I'm a Energetic and Friendly Person**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
